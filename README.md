@@ -29,7 +29,7 @@ I build clean, interactive dashboards and transform raw data into actionable bus
 I translate complex data findings into simple, impactful strategies that help businesses make smarter, profitable decisions.
 
 ## 📬 Contact  
-**LinkedIn:www.linkedin.com/in/tosinmile-demilade-5ba579200** 
+**LinkedIn:www.linkedin.com/in/demitheanalyst** 
 **Email:Ooluwatosinmile@gmail.com** 
 
 ---
